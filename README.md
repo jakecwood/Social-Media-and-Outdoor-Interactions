@@ -1,1 +1,1 @@
-# Social-Media-and-Outdoor-Interactions
+# Social Media and Outdoor Interactions
